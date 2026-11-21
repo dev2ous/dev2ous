@@ -13,7 +13,7 @@ $\color{#cdbd91}{\text{hide me = i own u. slash halfjoke ok?}}$
     <br>
     $\color{#cdbd91}{\text{c+h ok, iwec and w2i always. i don't rp. i bite a lil bit!}}$ 
      <br><br>
- $\color{#E2CA55}{\text{i like btales, rick&morty, ultrakill, indie cross (series), phighting, motm, and tf2. ++ many more}}$
+ $\color{#E2CA55}{\text{i like btales, rickandmorty, ultrakill, indie cross (series), phighting, motm, and tf2. ++ many more}}$
     <br>
      $\color{#E2CA55}{\text{i'm doing both taekwondo and gymnastics. i draw sometimes}}$
       <br><br>
